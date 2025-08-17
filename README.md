@@ -1,8 +1,9 @@
 # ɪɴꜰᴏ !
+ITS MY BIRTHDAAY!!
 hi yes i have a horrible attention span.please be patient when talking to me as i go offtab a lot,i have a busy life outside this game.might leave while saying something if my situation is urgent!
  ![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1403669191386599454/cdf0d4e54d1c4986c09f8b67c2cef1a3_1.jpg?ex=68a2478e&is=68a0f60e&hm=54a2a2a92a61165e9517e979f011ea8e4a73928cf0429c06aa4c0ac98a3d8beb&=&format=webp)
 
- i am a minor (14 to be exact.) i am fine with flirt and suggestive jokes being made around me,yes. however,if you are an adult please dont flirt with me even as a joke.respect my boundaries and dont interact with me unless i do/unless EXTREMELY important.
+ i am a minor (15 to be exact.) i am fine with flirt and suggestive jokes being made around me,yes. however,if you are an adult please dont flirt with me even as a joke.respect my boundaries and dont interact with me unless i do/unless EXTREMELY important.
  im a self taught artist and animator with around 11 years of experience. i dont animate as much as i used to anymore and currently improving myself at art!
  
  this is my kinsona <3
@@ -20,7 +21,7 @@ hi yes i have a horrible attention span.please be patient when talking to me as 
  DNI !
 
  
- people under 12 and/or over 17 (unless friend/unless i do/unless extremely important) if you support/respect/are zoo,incest,ped0,pr0shipper or d4rkshipper dont interact with me,block me hide me i dont care just stay away. dont copy my actions it triggers me,i am my own person and it took time to figure things out about myself and who i am,thats why it triggers me. (unless i gave you permission to copy my actions in a way)
+ people under 12 and/or over 18 (unless friend/unless i do/unless extremely important) if you support/respect/are zoo,incest,ped0,pr0shipper or d4rkshipper dont interact with me,block me hide me i dont care just stay away. dont copy my actions it triggers me,i am my own person and it took time to figure things out about myself and who i am,thats why it triggers me. (unless i gave you permission to copy my actions in a way)
 
 
 INT !
