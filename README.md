@@ -41,7 +41,8 @@ make jokes with me,laugh at me or make fun of me in a silly way,i enjoy that yes
 buildermon ceo and #1 shed kinnie >u< (dont worry i wont attack you,im #1 in my own head.if you think you are,i'll respect it and agree with you! i dont like useless drama much)
 
 uhh heres some of my art because..why not!!
-![Image Alt](https://media.discordapp.net/attachments/1377172836124328006/1397294259715051591/Untitled11_20250722220533.png?ex=6898456f&is=6896f3ef&hm=578388e4ae2a098f69116bcc56f5d20ac4760f7d5a846a752750bae043e1f267&=&format=webp&quality=lossless&width=881&height=881)
+![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1406584251637432350/IMG-20250722-WA0034.jpg?ex=68a2ff2a&is=68a1adaa&hm=0b7814253c381c8513286e93f31f97672abf3576bdc04053bdc14b131cd7a410&=&format=webp&width=777&height=777)
+![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1406584251234648084/IMG-20250817-WA0000.jpg?ex=68a2ff2a&is=68a1adaa&hm=e74646daea40a412e638546cb98ecc726dc1f088a25fe7b4d84e48f52c920b19&=&format=webp&width=777&height=777)
 ![Image Alt](https://media.discordapp.net/attachments/1377172836124328006/1388332451897544836/Untitled279_20250627134533.png?ex=6897f7da&is=6896a65a&hm=dde206e396c2fa28eed05f33530525f8c4717a8ce92b2e0754e7ce1bd0611b70&=&format=webp&quality=lossless&width=777&height=777)
 ![Image Alt](https://media.discordapp.net/attachments/1386697880852758611/1402033527989600396/IMG_20250804_235753.jpg?ex=68985fb9&is=68970e39&hm=aa0092634ff23c28c236a5d843e5e683714f945b17ca43f32242c35c437bb3c2&=&format=webp&width=659&height=880)
 ![Image Alt](https://media.discordapp.net/attachments/1386697880852758611/1398284374591668244/IMG-20250725-WA0016.jpg?ex=68a2770d&is=68a1258d&hm=a916c8f42527dadcc38a700683043baaa438cb34dbcb79aae1f2aa5812c42e99&=&format=webp&width=881&height=881)
