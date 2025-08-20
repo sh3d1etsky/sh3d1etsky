@@ -1,13 +1,13 @@
 # ɪɴꜰᴏ !
-ITS MY BIRTHDAAY!!
+
+(i removed imgs bc they pmo..they keep breaking UGHGHH okay:3
+
 hi yes i have a horrible attention span.please be patient when talking to me as i go offtab a lot,i have a busy life outside this game.might leave while saying something if my situation is urgent!
- ![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1403669191386599454/cdf0d4e54d1c4986c09f8b67c2cef1a3_1.jpg?ex=68a2478e&is=68a0f60e&hm=54a2a2a92a61165e9517e979f011ea8e4a73928cf0429c06aa4c0ac98a3d8beb&=&format=webp)
+ 
 
  i am a minor (15 to be exact.) i am fine with flirt and suggestive jokes being made around me,yes. however,if you are an adult please dont flirt with me even as a joke.respect my boundaries and dont interact with me unless i do/unless EXTREMELY important.
  im a self taught artist and animator with around 11 years of experience. i dont animate as much as i used to anymore and currently improving myself at art!
  
- this is my kinsona <3
- ![Image Alt](https://media.discordapp.net/attachments/1391412082532159538/1392559172700340274/Untitled328_20250709202348.png?ex=68982f0b&is=6896dd8b&hm=7272f532897afa3171d6c45c09ed74c05b97b57df94dd5996f2e44492e2d3d98&=&format=webp&quality=lossless&width=881&height=881)
 
  im a very hyperactive and joyful person! well... maybe depending on my mood.being with people always brings me comfort and keeps me from overthinking much. so feel free to cuddle and interact with me!!
 
@@ -36,18 +36,7 @@ BYI !
 make jokes with me,laugh at me or make fun of me in a silly way,i enjoy that yes!! i enjoy peoples company so always feel free to interact with me unless i have any kind of dni in my name! sorry,im a bit awkward,,if you are my close friend and talking to your other friends,i tend to stay away or stop talking,dont worry im just giving you space to talk to them since speaking to multiple people at once can be tiring!! yeah idrk what to add here :p
 
 
-![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1403669191961219173/56ea6860df67d05b76852d4daeb505e7_1.jpg?ex=6898644e&is=689712ce&hm=b1ecdcac32df95aa1b13786053366fe5970a38f766880386d76d107133f64ace&=&format=webp)
 
 buildermon ceo and #1 shed kinnie >u< (dont worry i wont attack you,im #1 in my own head.if you think you are,i'll respect it and agree with you! i dont like useless drama much)
 
-uhh heres some of my art because..why not!!
-![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1406584251637432350/IMG-20250722-WA0034.jpg?ex=68a2ff2a&is=68a1adaa&hm=0b7814253c381c8513286e93f31f97672abf3576bdc04053bdc14b131cd7a410&=&format=webp&width=777&height=777)
-![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1406584251234648084/IMG-20250817-WA0000.jpg?ex=68a2ff2a&is=68a1adaa&hm=e74646daea40a412e638546cb98ecc726dc1f088a25fe7b4d84e48f52c920b19&=&format=webp&width=777&height=777)
-![Image Alt](https://media.discordapp.net/attachments/1377172836124328006/1388332451897544836/Untitled279_20250627134533.png?ex=6897f7da&is=6896a65a&hm=dde206e396c2fa28eed05f33530525f8c4717a8ce92b2e0754e7ce1bd0611b70&=&format=webp&quality=lossless&width=777&height=777)
-![Image Alt](https://media.discordapp.net/attachments/1386697880852758611/1402033527989600396/IMG_20250804_235753.jpg?ex=68985fb9&is=68970e39&hm=aa0092634ff23c28c236a5d843e5e683714f945b17ca43f32242c35c437bb3c2&=&format=webp&width=659&height=880)
-![Image Alt](https://media.discordapp.net/attachments/1386697880852758611/1398284374591668244/IMG-20250725-WA0016.jpg?ex=68a2770d&is=68a1258d&hm=a916c8f42527dadcc38a700683043baaa438cb34dbcb79aae1f2aa5812c42e99&=&format=webp&width=881&height=881)
-![Image Alt](https://media.discordapp.net/attachments/1386697880852758611/1399910672715747369/Untitled31_20250730025033.png?ex=68a272e9&is=68a12169&hm=56c91dbcff348b52142c973bb93401d7baf2a200962a92dff4b144f08f385816&=&format=webp&quality=lossless)
-![Image Alt](https://media.discordapp.net/attachments/1392020370499960915/1403716065040535648/Untitled92_20250809152339.png?ex=68a27335&is=68a121b5&hm=2ccf117e3288d3cd7ff0e2f07846f85a4c2f0a5090c18e03598bde3a247282b6&=&format=webp&quality=lossless&width=881&height=881)
-
-
-okayyaayyaya thats all!!! thanks for reading,check my straw and draw somethign if u wannaa,, or you can sign atabook and give me art ideas,i'll put the finished drawing here if you suggest anything^^
+thats all c:
