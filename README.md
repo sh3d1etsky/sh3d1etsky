@@ -27,7 +27,7 @@ hi yes i have a horrible attention span.please be patient when talking to me as 
 INT !
 
 
-doubles,ppl in the same fandoms as me (metal slug,fancy pants,henry stickmin collection,forsaken,waapp,brandon works etc) basically anyone that isnt in my dni list ^u^
+doubles,ppl in the same fandoms as me (metal slug,fancy pants,henry stickmin collection,forsaken,waapp,brandon works,madcom,sewh,crk,lhg etc) basically anyone that isnt in my dni list ^u^
 
 
 BYI !
