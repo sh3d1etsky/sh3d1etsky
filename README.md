@@ -6,6 +6,7 @@ hi yes i have a horrible attention span.please be patient when talking to me as 
  im a self taught artist and animator with around 11 years of experience. i dont animate as much as i used to anymore and currently improving myself at art!
  
  this is my kinsona <3
+ 
  ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/137291447/e525217e23d3426fa49fac7b653bf460/eyJxIjoxMDAsIndlYnAiOjB9/1.png?token-hash=2e-WwR6RRBC7oQAA1kAFqzyRIAOwBwfC9Uj62RLYFIg%3D&token-time=1757376000)
 
  im a very hyperactive and joyful person! well... maybe depending on my mood.being with people always brings me comfort and keeps me from overthinking much. so feel free to cuddle and interact with me!!
@@ -39,7 +40,7 @@ make jokes with me,laugh at me or make fun of me in a silly way,i enjoy that yes
 
 buildermon ceo and #1 shed kinnie >u< (dont worry i wont attack you,im #1 in my own head.if you think you are,i'll respect it and agree with you! i dont like useless drama much)
 
-uhh heres some of my art because..why not!!
+uhh heres some of my recent art because..why not!!
 ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/137291447/20bcb45a57974f0ea07059b60ab0eb55/eyJxIjoxMDAsIndlYnAiOjB9/1.png?token-hash=gCjVvuM_t387q7o5ZQXe4Yf5eSi3ucpIA8xY97J9KNQ%3D&token-time=1757376000)
 ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/137291447/4dd169b8b07940928e4eb5ac7be8fa9a/eyJxIjoxMDAsIndlYnAiOjB9/1.png?token-hash=MqnDW_GCMFJCVx_RylYxEE2aj1mCB0FZFhOw1PIdVM8%3D&token-time=1757376000)
 ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/137291447/d370d04026ff4a7eb79f47e01f17464f/eyJxIjoxMDAsIndlYnAiOjB9/1.png?token-hash=TJagEuVw7GHA8NzQMyHD_6Pv-pTeG5XTepzJlkTa65s%3D&token-time=1757376000)
