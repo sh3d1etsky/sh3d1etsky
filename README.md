@@ -21,7 +21,7 @@ hi yes i have a horrible attention span.please be patient when talking to me as 
  DNI !
 
  
- people under 12 and/or over 17 (unless i do/unless extremely important) if you support/respect/are zoo,incest,ped0,pr0shipper or d4rkshipper dont interact with me,block me hide me i dont care just stay away. dont copy my actions it triggers me,i am my own person and it took time to figure things out about myself and who i am,thats why it triggers me. (unless i gave you permission to copy my actions in a way)
+ people under 12 and/or over 17 (unless i do/unless extremely important or a friend) if you support/respect/are zoo,incest,ped0,pr0shipper or d4rkshipper dont interact with me,block me hide me i dont care just stay away. dont copy my actions it triggers me,i am my own person and it took time to figure things out about myself and who i am,thats why it triggers me. (unless i gave you permission to copy my actions in a way)
 
 
 INT !
