@@ -2,7 +2,7 @@
 hi yes i have a horrible attention span.please be patient when talking to me as i go offtab a lot,i have a busy life outside this game.might leave while saying something if my situation is urgent!
  ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/137291447/04571f7dde79410eb62762df75b643cf/eyJxIjoxMDAsIndlYnAiOjB9/1.jpg?token-hash=gaGoDOgRYCqjgRMo-kR6_WAdQPnSpPJmvD6fHlS8n2w%3D&token-time=1757376000)
 
- i am a minor (14 to be exact.) i am fine with flirt and suggestive jokes being made around me,yes. however,if you are an adult please dont flirt with me even as a joke.respect my boundaries and dont interact with me unless i do/unless EXTREMELY important.
+ i am a minor (15 to be exact.) i am fine with flirt and suggestive jokes being made around me,yes. however,if you are an adult please dont flirt with me even as a joke.respect my boundaries and dont interact with me unless i do/unless EXTREMELY important.
  im a self taught artist and animator with around 11 years of experience. i dont animate as much as i used to anymore and currently improving myself at art!
  
  this is my kinsona <3
