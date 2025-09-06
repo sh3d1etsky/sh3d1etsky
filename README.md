@@ -1,5 +1,5 @@
 # ɪɴꜰᴏ !
-hi yes i have a horrible attention span.please be patient when talking to me as i go offtab a lot,i have a busy life outside this game.might leave while saying something if my situation is urgent!
+hi yes i have a horrible attention span.please be patient when talking to me as i go offtab a lot,i have a busy life outside this game.might leave while saying something if my situation is urgent! (im literally known 4 being semi afk pls
  ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/137291447/04571f7dde79410eb62762df75b643cf/eyJxIjoxMDAsIndlYnAiOjB9/1.jpg?token-hash=gaGoDOgRYCqjgRMo-kR6_WAdQPnSpPJmvD6fHlS8n2w%3D&token-time=1757376000)
 
  i am a minor (15 to be exact.) i am fine with flirt and suggestive jokes being made around me,yes. however,if you are an adult please dont flirt with me even as a joke.respect my boundaries and dont interact with me unless i do/unless EXTREMELY important.
